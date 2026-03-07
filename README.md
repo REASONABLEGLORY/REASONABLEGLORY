@@ -10,7 +10,7 @@
   <p>HELLO!!!! I don't use my name on ponytown so you can call me like anything. I use it/its and I really really like Noli. I'm often tabbed out, and if I don't respond to whispers I'm probably on ETOH 💔 I'll see it eventually...</p>
   <p>C+H literally always ok I play this game to hang out with people!!!! Plz don't directly copy my ponies though I worked hard on them ): </p>
 
-  <p>I mostly like roblox (DG/FS, Pressure, Phighting, Project Remix, DABS, ETOH) but I also like Anime, Postal, Sonic EXEs, Elsword, Digimon and Pokemon, + others obvs</p>
+  <p>I mostly like roblox (DG/FS, Pressure, Phighting, Project Remix, DABS, ETOH) but I also like Anime, Postal, Sonic.EXE, Elsword, Digimon and Pokemon, + others obvs</p>
 
   <p align="center">
   <img src="https://media.tenor.com/A4dvmtvsiWwAAAAM/noli-noli-hjd.gif">
